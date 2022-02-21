@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Antony and this(@Wiplash22) is my git ID
+- 👀 I’m interested in future technology and Artificial Intelligence
+- 🌱 I’m currently learning Bsc Computer System and Information Technology
+- 📫 you can connect me through mail :antonyjporuthukkaran33290@gmail.com
